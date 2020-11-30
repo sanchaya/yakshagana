@@ -1,6 +1,6 @@
-# Dr. Krishnananda Kamat & Dr. Jyotsna Kamat Digital Kannada Books
+# Yakshagana Prasanga -Digital Kannada Books
 
-Dr. Krishnananda Kamat & Dr. Jyotsna Kamat Digital Kannada Books is a showcase of the #ServantsOfKnowledge project works @Sanchaya & @SanchiFoundation
+Yakshagana Prasanga - Digital Kannada Books is a showcase of the #ServantsOfKnowledge project works @Sanchaya & @SanchiFoundation
 
 Check it out : https://sanchaya.org & https://sanchifoundation.org
 
